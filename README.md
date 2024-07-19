@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Willy Kiptoo
 - 👀 I’m interested in software development 
-- 🌱 I’m currently learning python
+- 🌱 My unpopular opinion is: the more the languages the deeper the understanding. 
 - 💞️ I’m looking to collaborate on applications that bring efficiency and focuses simplicity. I'm a minimalist. 
 - 📫 How to reach me +254 720 101 345 / willytoo33@gmail.com
 - 😄 Pronouns: Only two genders. 
