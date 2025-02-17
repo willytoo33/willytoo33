@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Willy Kiptoo<br>👀 I’m interested in software development<br>🌱 My unpopular opinion is: the more the languages the deeper the understanding.<br>💞️ I’m looking to collaborate on applications that bring efficiency and focuses simplicity. I'm a minimalist.<br>📫 How to reach me +254 720 101 345 / willytoo33@gmail.com<br>😄 Pronouns: Only two genders.<br>⚡ Fun fact: I play a lot of football, but I'm not a big 'fan' of football.
+👋 Hi, I’m Willy Kiptoo<br>👀 I’m interested in software development<br>🌱 My unpopular opinion is: the more the languages the broader the understanding.<br>💞️ I’m looking to collaborate on applications that bring efficiency and focuses simplicity. I'm a minimalist.<br>📫 How to reach me +254 720 101 345 / willytoo33@gmail.com<br>😄 Pronouns: Only two genders.<br>⚡ Fun fact: I play a lot of football, but I'm not a big 'fan' of football.
 
 
 ## 🌐 Socials:
